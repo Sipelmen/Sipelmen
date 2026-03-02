@@ -12,6 +12,6 @@ Bagi yang memiliki ketertarikan tentang AI dan ingin belajar bersama silahkan me
 Salam Kenal.
 <br>
 Kontak:
--[Gmail](clintonhutagaol555@gmail.com)
--[WhatsApp](+62-895-322-613-879)
--[LinkedIn](https://www.linkedin.com/in/clinton-martogi-1570853b4/)
+- [Gmail](clintonhutagaol555@gmail.com)
+- [WhatsApp](+62-895-322-613-879)
+- [LinkedIn](https://www.linkedin.com/in/clinton-martogi-1570853b4/)
