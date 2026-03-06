@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Sastra**.<br>
 
-Saya seorang **Pelajar yang sedang menempu jenjang S1 IT**).<br>
+Saya seorang **Pelajar yang sedang menempu jenjang S1 (IT).**.<br>
 
 Saya masih kategori awam dalam dunia per-IT-an<br>
 
