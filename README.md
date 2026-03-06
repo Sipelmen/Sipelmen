@@ -1,6 +1,6 @@
 ## Halo semua!  👋
 
-Perkenalkan nama saya **Clinton T.M Hutagaol**.<br>
+Perkenalkan nama saya **Sastra**.<br>
 
 Saya seorang **Pelajar yang sedang menempu jenjang S1 IT**).<br>
 
